@@ -21,8 +21,8 @@
 
 
 
-https://eirian.atabook.org
-https://eirianlovesyou.straw.page
+             [Atabook](https://eirian.atabook.org) 
+            [Strawpage](https://eirianlovesyou.straw.page) 
 
 
 
