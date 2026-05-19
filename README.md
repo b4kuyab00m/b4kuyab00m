@@ -21,7 +21,9 @@
 
 
 
-Display: flex; Justify-content: center; Alight-items: center;[***ATABOOK***](https://eirian.atabook.org) • [***STRAWPAGE***](https://eirianlovesyou.straw.page)
+<display:flex; 
+justify-content:center;
+Alight-items:center;[***ATABOOK***](https://eirian.atabook.org) • [***STRAWPAGE***](https://eirianlovesyou.straw.page)
 
 
 
