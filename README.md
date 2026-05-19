@@ -21,7 +21,7 @@
 
 
 
-<center>[***ATABOOK***](https://eirian.atabook.org) • [***STRAWPAGE***](https://eirianlovesyou.straw.page)
+<p [***ATABOOK***](https://eirian.atabook.org) • <p center>[***STRAWPAGE***](https://eirianlovesyou.straw.page)
 
 
 
