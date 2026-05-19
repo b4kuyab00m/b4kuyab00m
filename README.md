@@ -10,4 +10,4 @@
 <center><img width="640" height="640" alt="1000012830" src="https://github.com/user-attachments/assets/e0f4ad49-0a72-4380-9a4a-91bc52c791e6" />
 
 
-<center><p></p> [***ATABOOK***](https://eirian.atabook.org) </p></center>
+<center[***ATABOOK***](https://eirian.atabook.org) -
