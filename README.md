@@ -17,4 +17,4 @@
 
 
 
-[***ATABOOK***](https://eirian.atabook.org) = [***STRAWPAGE***](https://eirianlovesyou.straw.page)
+!<center>[***ATABOOK***](https://eirian.atabook.org) = [***STRAWPAGE***](https://eirianlovesyou.straw.page)
