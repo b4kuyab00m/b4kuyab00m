@@ -16,4 +16,15 @@
 
 
 
-✧･ﾟ: *✧･ﾟ:*[***ATABOOK***](https://eirian.atabook.org) ☆ [***STRAWPAGE***](https://eirianlovesyou.straw.page).・゜゜・
+✧･ﾟ: *✧･ﾟ:*[***ATABOOK***](https://eirian.atabook.org) ☆ [***STRAWPAGE***](https://eirianlovesyou.straw.page)✧･ﾟ: *✧･ﾟ:*
+
+
+
+
+
+
+
+
+
+
+<img width="735" height="245" alt="1000012835" src="https://github.com/user-attachments/assets/f7958b58-7dbd-4134-96e9-2dfe2ad847a2" />
