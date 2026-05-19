@@ -16,5 +16,4 @@
 
 
 
-<center link>
-[***ATABOOK***](https://eirian.atabook.org) = [***STRAWPAGE***](https://eirianlovesyou.straw.page)
+✧･ﾟ: *✧･ﾟ:*[***ATABOOK***](https://eirian.atabook.org) ☆ [***STRAWPAGE***](https://eirianlovesyou.straw.page).・゜゜・
