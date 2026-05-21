@@ -2,7 +2,7 @@
 
 
 
-$$(๑˃̵　ᴗ　˂̵)و$$
+<p align="center">(๑˃̵　ᴗ　˂̵)و</p>
 
 
 <div align="center"><img src="https://github.com/user-attachments/assets/e0f4ad49-0a72-4380-9a4a-91bc52c791e6" /></div>
