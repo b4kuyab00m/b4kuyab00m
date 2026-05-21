@@ -16,7 +16,8 @@
 
 <p align="center">
  ✧･ﾟ: *✧･ﾟ:*<a href="https://yourlink1.com" >𝘈𝘛𝘈𝘉𝘖𝘖𝘒</a> •
-  <a href="https://yourlink2.com">𝘚𝘛𝘙𝘈𝘞𝘗𝘈𝘎𝘌</a> ✧･ﾟ: *✧･ﾟ:*</p>
+  <a href="https://yourlink2.com">𝘚𝘛𝘙𝘈𝘞𝘗𝘈𝘎𝘌</a>
+✧･ﾟ: *✧･ﾟ:*</p>
 
 
 
