@@ -14,7 +14,8 @@ $$(๑˃̵　ᴗ　˂̵)و$$
 
 
 
-✧･ﾟ: *✧･ﾟ:*[***ATABOOK***](https://eirian.atabook.org) ☆ [***STRAWPAGE***](https://eirianlovesyou.straw.page)✧･ﾟ: *✧･ﾟ:*
+<p align="center"><a href="https://eirian.atabook.org">𝘈𝘛𝘈𝘉𝘖𝘖𝘒</a></p> <p align="center"><a href="https://eirianlovesyou.straw.page">𝘚𝘛𝘙𝘈𝘞𝘗𝘈𝘎𝘌</a></p>
+
 
 
 
